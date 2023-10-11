@@ -1,0 +1,5 @@
+- 👋 oi, sou caua
+- 👀 sou interessado in volei
+- 🌱 atualmente estou aprendendo a levantar de pipe
+- 💞️ procuro colaborar com o time
+- 📫 como chegar ate mim, seja humilde, pratique esporte e seja verdadeiro 
